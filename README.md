@@ -1,0 +1,1 @@
+https://www.researchgate.net/publication/378041286_Eco-friendly_natural_dyeing_using_Dillenia_indica_leaf_to_produce_functional_silk_fabric
